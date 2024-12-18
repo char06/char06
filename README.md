@@ -29,4 +29,4 @@ Feel free to reach out if you’re looking for a passionate and dedicated develo
 
 **Carlos Aguirre**  
 Los Angeles, CA  
-🌐 [LinkedIn](#) | 📧 [Email Me](#)
+🌐 [LinkedIn](https://www.linkedin.com/in/carlos-aguirre-dev/) | 📧 [Email Me](mailto:carlosaguirre086@gmail.com)
